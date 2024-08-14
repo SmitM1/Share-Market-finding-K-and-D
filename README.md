@@ -1,0 +1,1 @@
+# Share-Market-finding-K-and-D
